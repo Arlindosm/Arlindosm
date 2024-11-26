@@ -12,4 +12,4 @@ arlindosm@gmail.com
 
 @arlindodesm
 
-![smile](link GIF do Tenor)
+![smile]([link GIF do Tenor](https://i.gifer.com/7cHU.mp4))
