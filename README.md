@@ -8,7 +8,7 @@ Meu nome é Arlindo Moreira
 
 ### Você pode entrar em contato comigo :mailbox
 
-arlindosm@gmail.com
+arlindosm@outlook.com
 
 @arlindodesm
 
